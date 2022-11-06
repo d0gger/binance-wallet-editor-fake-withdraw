@@ -2,4 +2,4 @@
 Install the font before running the app
 This is a one time trial app, the fully version of the app is currently for sale
 discord d0gger#0105
-[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/[YOUTUBE_VIDEO_ID_HERE](https://www.youtube.com/watch?v=RllGuc_1F4A&t=85s)/0.jpg)]([https://www.youtube.com/watch?v=YOUTUBE_VIDEO_ID_HERE](https://www.youtube.com/watch?v=RllGuc_1F4A&t=85s))
+https://www.youtube.com/watch?v=RllGuc_1F4A&t=85s
