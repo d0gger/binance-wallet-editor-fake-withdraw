@@ -2,4 +2,4 @@
 Install the font before running the app
 This is a one time trial app, the fully version of the app is currently for sale
 discord d0gger#0105
-[![ Binance Wallet Editor + Fake Withdraw ](https://yt-embed.herokuapp.com/embed?v=RllGuc_1F4A)](https://www.youtube.com/watch?v=RllGuc_1F4A&t=85s" Binance Wallet Editor + Fake Withdraw ")
+[![Everything Is AWESOME](https://yt-embed.herokuapp.com/embed?v=StTqXEQ2l-Y)](https://www.youtube.com/watch?v=StTqXEQ2l-Y "Everything Is AWESOME")
